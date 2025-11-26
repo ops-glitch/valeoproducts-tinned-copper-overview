@@ -4,4 +4,4 @@
 Founded in 1980 by Mr. Vijay Mutha, ValeoProducts specializes in quality conductors used in renewable energy and EV applications.
 
 Learn more about their products and history:  
-[ValeoProducts — Tinned Copper Interconnects](https://valeoproducts.org)
+[ValeoProducts — Tinned Copper Interconnects](https://valeoproducts.com)
